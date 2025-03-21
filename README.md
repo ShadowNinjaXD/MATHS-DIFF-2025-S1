@@ -3,4 +3,4 @@ Written 1 © 2025 by VL is licensed under CC BY-NC-ND 4.0. To view a copy of thi
 Copyright does not apply to similar files created with no intention of violating the above license.
 Final interpretation rights are granted to VL.
 
-NPlease be advised that the name "VL" (or any alternative pen name used) is a pseudonym adopted for the purposes of this site. The use of this pseudonymous identity allows the creator to maintain anonymity and is not associated with any legal entity or corporation.
+Please be advised that the name "VL" (or any alternative pen name used) is a pseudonym adopted for the purposes of this site. The use of this pseudonymous identity allows the creator to maintain anonymity and is not associated with any legal entity or corporation.
